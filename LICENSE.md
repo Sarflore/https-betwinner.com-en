@@ -1,0 +1,1 @@
+crack apple of fortune
